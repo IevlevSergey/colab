@@ -1,3 +1,1 @@
 ETO TEXT
-
-tut tozhe
